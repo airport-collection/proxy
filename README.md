@@ -1,4 +1,4 @@
-# Quantumult X Rules
+# Qxxxxxxxxxxx X Rules
 
 For personal use only.
 
